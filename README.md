@@ -1,8 +1,2 @@
-![IMG_6812](https://github.com/user-attachments/assets/d3d892fc-3d37-4e05-b95b-2cbded329b1d)
-
-Hi hi! I'm Ramiel but you can just call me Ram for short. I'm really fond of jjba (stardust crusaders has a special place in my heart but I love talking about any parts!) and Yugioh dm.
-
-Feel free to interact with me! C+h preferably when i'm alone but in general I love making new friends!
-
-I love my girlfriend Squeebo so so much you'll usaully see me with them dni if you have them hidden literally anyone else can interact
-![IMG_6813](https://github.com/user-attachments/assets/3d86e415-c618-4d95-ba63-6f44a7b5cc1c)
+<img width="451" height="554" alt="IMG_6865" src="https://github.com/user-attachments/assets/c8e96d9c-6e93-43f6-809e-bdbb0443bd83" />
+Hi i'm ram he/him i like jjba and other media just ask me about it. I love stardust crusaders kakyoin is the cherry on top of my heart. My girlfriend Squee is the ribbon that ties me together.
